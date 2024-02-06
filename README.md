@@ -7,8 +7,6 @@ Check out my work and feel free to ping me!
 - 😄 Pronouns: she/her
 - 📫 How to reach me: amantra@ncsu.edu
 - ⚡ Fun fact: I am a Carnatic vocalist! Find some of my music [here](https://www.youtube.com/channel/UCZle6yKJmAKyuKKzQT0WJQg)! ![YouTube Channel Views](https://img.shields.io/youtube/channel/views/UCZle6yKJmAKyuKKzQT0WJQg)
-  
-<a href="https://www.buymeacoffee.com/ananya173" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" alt="Buy Me A Coffee" style="height: 60px !important;width: 217px !important;" ></a>
 
 <h3>Find me at:</h3>
 <p>
