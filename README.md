@@ -5,7 +5,7 @@ Check out my work and feel free to ping me!
 [![Ananya's GitHub stats](https://github-readme-stats.vercel.app/api?username=ananya173147&show_icons=true&count_private=true&theme=cobalt)](https://github.com/ananya173147/github-readme-stats)
 
 - 😄 Pronouns: she/her
-- 📫 How to reach me: amantra@ncsu.edu
+- 📫 How to reach me: ananya.mantravadi.dev@gmail.com
 - ⚡ Fun fact: I am a Carnatic vocalist! Find some of my music [here](https://www.youtube.com/channel/UCZle6yKJmAKyuKKzQT0WJQg)! ![YouTube Channel Views](https://img.shields.io/youtube/channel/views/UCZle6yKJmAKyuKKzQT0WJQg)
 
 <h3>Find me at:</h3>
